@@ -1,9 +1,14 @@
-		# ABA, sesgos neurotípicos y otros pensamientos
-		###### Sat, 13 Apr 2019 02:37:08 +0000
-		
+---
 
+title: "ABA, sesgos neurotípicos y otros pensamientos"
+
+date: Sat, 13 Apr 2019 02:37:08
+
+---
 Quiero dejar de criticar ABA y el conductismo desde las interpretaciones superficiales a su técnica, desde las que acepto lo he hecho anteriormente con cierta frecuencia. Acepto que aún sigo sin entenderlos a profundidad a nivel técnico. Así que lo que escribiré son las dudas y comentarios que, independiente de lo técnico, la metodología o sus criticados objetivos, aún no me permiten creer que es una terapia recomendable para personas autistas. Escribo simplemente desde mi sentir y estoy abierta a que me demuestren que mi sentir es equivocado, pues viviría más tranquila de saber que las personas autistas están siendo apoyadas por una terapia segura, confiable y no abusiva.
+
 Sé que hoy hay terapeutas ABA que no buscan que autistas sean "indistinguibles de pares" ni extinguir comportamientos arbitrariamente. También sé que hay otros que lo siguen haciendo, lo dicen con orgullo en grupos de autismo, aunque sus colegas digan que "eso era antes y la *ciencia* de ABA ha avanzado mucho". Es más, estudios recientes sobre ABA no me permiten creer esas afirmaciones (1), pues siguen considerando "conducta problemática", por ejemplo, las estereotipias no dañinas, y midiendo su efectividad en su extinción:
+
 
 [Imagen con extracto del estudio enlazado al final, tomado de https://twitter.com/AnnMemmott/status/1114249100487213056?s=19]
 
