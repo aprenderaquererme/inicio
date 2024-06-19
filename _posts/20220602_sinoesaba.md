@@ -14,11 +14,11 @@ Sé que hoy hay terapeutas ABA que no buscan que autistas sean "indistinguibles 
 
 ¿Si? ¿Ha cambiado? Además de ese estudio de 2019...
  
-	 + Sé de decenas de casos recientes de autistas que se les ha hecho daño. La madre de uno de estos niños es autista y es mi amiga. 
-	 + Esta semana subió una madre un vídeo de la terapia ABA que recibía su hija en la que le decían "<a target="_blank" rel="noopener" href="https://juststimming.wordpress.com/2011/10/05/quiet-hands/">quiet hands</a>" varias veces en los 30 segundos de vídeo. 
-	 + Leo terapeutas desactualizados ¿o no? que anteponen la supuesta «naturaleza humana» y la «manera en que aprendemos» (conductista) a la experiencia autista. 
-	 + Existen muchos terapeutas ABA que creen que somos nuestros comportamientos y/o que no existe el neurotipo autista. 
-	 + El lenguaje sobre el autismo de terapeutas y proveedores de ABA, que es sin duda <a target="_blank" rel="noopener" href="https://neurolatino.wordpress.com/2016/06/08/desechen-las-herramientas-del-amo-liberandonos-del-paradigma-de-la-patologia/">patológico</a>, muchísimas veces está cargado de misautismia y hasta hablan de "recuperación". 
+ * Sé de decenas de casos recientes de autistas que se les ha hecho daño. La madre de uno de estos niños es autista y es mi amiga. 
+* Esta semana subió una madre un vídeo de la terapia ABA que recibía su hija en la que le decían "<a target="_blank" rel="noopener" href="https://juststimming.wordpress.com/2011/10/05/quiet-hands/">quiet hands</a>" varias veces en los 30 segundos de vídeo. 
+* Leo terapeutas desactualizados ¿o no? que anteponen la supuesta «naturaleza humana» y la «manera en que aprendemos» (conductista) a la experiencia autista. 
+* Existen muchos terapeutas ABA que creen que somos nuestros comportamientos y/o que no existe el neurotipo autista. 
+* El lenguaje sobre el autismo de terapeutas y proveedores de ABA, que es sin duda <a target="_blank" rel="noopener" href="https://neurolatino.wordpress.com/2016/06/08/desechen-las-herramientas-del-amo-liberandonos-del-paradigma-de-la-patologia/">patológico</a>, muchísimas veces está cargado de misautismia y hasta hablan de "recuperación". 
  
 .
 
