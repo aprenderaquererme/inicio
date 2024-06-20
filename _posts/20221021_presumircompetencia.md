@@ -1,0 +1,12 @@
+---
+
+title: # PresumirCompetencia
+
+date: Fri, 21 Oct 2022 15:56:46 +
+Trato siempre de presumir competencia (y hay días en que es difícil), también con adultos.<br>.<br>Esto es: elijo pensar que las personas pueden aprender, tomar decisiones enfocadas en bienestar general, entre otras, si están dadas las condiciones para ello.<br>.<br>Yo, como ser humano, no respondo bien ni me es posible simplemente cambiar u obedecer simplemente porque me dicen que "X es algo bueno" o "Z es algo malo".<br>.<br>Necesito explicaciones lógicas Y necesito que no me traten como ignorante, mala, etc por tener información distinta previa.<br>.<br>Yo no sé si todos los seres humanos son como yo, pero asumo que en gran medida lo son.<br>.<br>Que me mal-traten no me ayuda a aprender o a cambiar. Al contrario.<br>.<br>De ahí que profundice y genere mucha información sobre aquello que creo hace daño.<br>.<br>Trabajar en MITIGACIÓN DEL DAÑO me es mucho más útil, enfocado a bienestar y compasivo con las víctimas del daño que hacer "cacerías de brujas" y señalar "la maldad" de quien hace daño.<br>.<br>Me comunico, trabajo, enseño y presumo competencia de quien "se porta mal".<br>.<br>Creo que una sociedad más justa se puede gestar más desde ahí que desde la satanización de personas.<br>.<br>Eso puede parecer como que caigo en "traición a la causa" o que "me alío con el enemigo". Pero es que las dinámicas de guerra no me son racionales porque presumo competencia.<br>.<br>Seguiré siempre denunciando actitudes, denunciando capacitismos y otras opresiones. Pero creo que quien cae en ellos cambia más fácil desde el acceso a la información que desde el que se le le trate como el enemigo a erradicar.<br>.<br>Y sí, hay quizás mucho de ingenuidad y de "el mundo real no es así" en mis planteamientos. Pero elijo no trabajar desde el miedo ni darle valor al mal llamado "mundo real".<br>.<br>Trabajar con quien hace daño no implica que valide a la persona o recomiende sus acciones. Significa que creo que quien hace daño puede ir entiendiendo por qué sus acciones hacen daño e ir cambiando a medida que aprenden a ver las perspectivas de quien ha recibido daño.<br>Desde ese presumir competencia, históricamente he tolerado a personas abusivas relativamente cerca más tiempo del que debía.<br><br>Y aunque al final sé que no puedo tolerar abusadores, espero que algo, así sea poco, hayan logrado aprender de mí y desde ahí ojalá se revisen (lo dudo).<br>.
+
+.
+Me comunico, trabajo, enseño y presumo competencia de quien “se porta mal”.
+.
+
+<br>
